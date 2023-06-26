@@ -1,0 +1,1 @@
+artykuł inna planeta
